@@ -8,6 +8,7 @@
 - 018 [Алексей Петухов](https://www.facebook.com/petyhovav)
 - 020 [Денис](https://t.me/mihruitka) [Бабаев](https://www.facebook.com/denis.babaev)
 - 021 [Екатерина Рудина](https://www.facebook.com/ekaterina.rudina.3)
+- 022 [Сергей](https://t.me/Greylam) [Повышев](https://www.facebook.com/profile.php?id=100004347582964)
 - 023 [Владимир Карантаев](https://www.facebook.com/vladimir.karantaev)
 - 025 [Марина Сорокина](https://www.facebook.com/Mar.Sorokina)
 - 027 [Алексей Мартынцев](https://www.facebook.com/alex.martyntsev)
